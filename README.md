@@ -1,4 +1,4 @@
-Syed Raheel Shahzad | سید راحیل شہزاد | سيد راحيل شهزاد | सैयद राहील शहज़ाद
+Syed Raheel Shahzad | سید راحیل شہزاد | سيد راحيل شهزاد 
 
 Author | Founder | Group CEO | Business Strategist | Systems Thinker & Architect
 
